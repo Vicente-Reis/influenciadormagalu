@@ -4,7 +4,7 @@
 
 [![Vídeo](https://img.youtube.com/vi/nJb98oWIcqw/0.jpg)](https://www.youtube.com/watch?v=nJb98oWIcqw)
 
-A Lu, do Magalu, gravou um vídeo especial para apresentar o Influenciador Magalu, a plataforma oficial de vendas online do Magazine Luiza. Descubra como identificar uma loja oficial e faça suas compras com segurança e proteção dos seus dados.
+A Lu, do Magalu, gravou um vídeo especial para apresentar o Influenciador Magalu, (O novo nome do Parceiro Magalu) a plataforma oficial de vendas online do Magazine Luiza. Descubra como identificar uma loja oficial e faça suas compras com segurança e proteção dos seus dados.
 
 **Confira o vídeo:** 
 [Clique Aqui!](https://www.youtube.com/watch?v=nJb98oWIcqw)
