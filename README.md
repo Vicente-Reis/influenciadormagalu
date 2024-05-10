@@ -12,6 +12,7 @@ A Lu, do Magalu, gravou um vídeo especial para apresentar o Influenciador Magal
 Tem dúvidas? Acesse o site para saber mais: 
 [Influenciador Magalu](https://www.influenciadormagalu.com.br/vrshop)
 
+
 Você também pode entrar em contato com o SAC Magalu no 0800-310-0002.
 
 Magazine V R Shop  
