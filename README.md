@@ -18,4 +18,4 @@ Magazine V R Shop
 Influenciador Magalu  
 Vicente Reis 🛍️💙  
 
-**Realizamos entregas em todo o Brasil!** 🚐🛫
+🚐 **Realizamos entregas em todo o Brasil!** 🛫
